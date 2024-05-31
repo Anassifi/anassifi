@@ -1,6 +1,7 @@
 ## Hi there 👋
 
-![ezgif-6-3b8cbf2088](https://github.com/Anassifi/anassifi/assets/57526420/22ab2be0-27a2-4f46-912c-1a29cea8033c)
+![ezgif-6-036347fea9](https://github.com/Anassifi/anassifi/assets/57526420/6e547087-b0de-4701-8146-3bbc7d581edf)
+
 
 **Anassifi** is a ✨ _special_ ✨ guy!
 
